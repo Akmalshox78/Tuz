@@ -1,0 +1,2 @@
+# Tuz
+Orzu osh tuzi
